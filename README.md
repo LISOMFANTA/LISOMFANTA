@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project that is related to 
 - 📫 I am reachable by mail on lisomfanta@gmail.com and on linkedIn
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am fun and I am always in a hunt for facts
+- ⚡ Fun fact: I am fun and I am always in a hunt for facts. I also produce music as a hobby
 
 <!---
 LISOMFANTA/LISOMFANTA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
